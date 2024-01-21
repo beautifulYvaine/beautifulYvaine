@@ -2,8 +2,8 @@
 - 👀 I’m interested in code
 - 🌱 I’m currently want to learn code and explore the function
 - ⚡ Fun fact: my degree major is about business 
-- 💞 How to reach me ...IF you want to know more about me, you can send me massage
-- 😄 Pronouns: ...
+- 💞 How to reach me ...IF you want to know more about me, you can send me message
+- 😄 character: gentle,nice
 - 
 
 <!---
