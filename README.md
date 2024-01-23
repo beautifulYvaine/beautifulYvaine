@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @beautifulYvaine
+- 👋 Hi, I’m Yvaine
 - 👀 I’m interested in code
 - 🌱 I’m currently want to learn code and explore the function
 - ⚡ Fun fact: my degree major is about business 
